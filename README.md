@@ -3,7 +3,8 @@
   ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀  ⠀ ⠀  ⠀⠀ ⠀
   ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀  ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀  ⠀⠀  ⠀ ⠀⠀⠀⠀ *the frog and me*
 
-⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀![tumblr_873e9f5abe9794cc7758430a1f99fb8b_5f66782e_400](https://github.com/user-attachments/assets/e7260a56-f53b-4059-924e-949d8107327b)⠀ ⠀ ⠀![tumblr_873e9f5abe9794cc7758430a1f99fb8b_5f66782e_400](https://github.com/user-attachments/assets/e7260a56-f53b-4059-924e-949d8107327b)
+  ⠀⠀ ⠀⠀⠀ ⠀  ⠀⠀  ⠀⠀ ⠀⠀  ⠀⠀  ⠀⠀ ⠀⠀  ⠀⠀ 
+  ⠀⠀ ⠀⠀⠀⠀ ![tumblr_5711aa33a92740e5cab6b3884cf22b88_c38a6a08_400](https://github.com/user-attachments/assets/f3083254-48c1-4a17-b7d9-af3d8b6642c9)
 
 
 
@@ -13,7 +14,7 @@
   
  ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀  ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀![tumblr_916717822d62e989a7a703909650ef28_1b6af7bd_400](https://github.com/user-attachments/assets/8bf27540-4e86-4298-a1f5-c2ad74bed0c8)
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀![tumblr_873e9f5abe9794cc7758430a1f99fb8b_5f66782e_400](https://github.com/user-attachments/assets/e7260a56-f53b-4059-924e-949d8107327b)⠀ ⠀ ⠀![tumblr_873e9f5abe9794cc7758430a1f99fb8b_5f66782e_400](https://github.com/user-attachments/assets/e7260a56-f53b-4059-924e-949d8107327b)
-
+  ⠀⠀ ⠀⠀⠀ ⠀  ⠀⠀  ⠀⠀ ⠀⠀  ⠀⠀  ⠀⠀ ⠀⠀  ⠀⠀ 
+  ⠀⠀ ⠀⠀⠀⠀  ![tumblr_5711aa33a92740e5cab6b3884cf22b88_c38a6a08_400](https://github.com/user-attachments/assets/f3083254-48c1-4a17-b7d9-af3d8b6642c9)
 
  ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀  ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀
