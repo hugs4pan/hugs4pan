@@ -1,17 +1,18 @@
- ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀![d750fg5-e8e08346-9a3c-454c-a295-30e083b6d925](https://github.com/user-attachments/assets/9f00e9bb-59a1-40ae-96b7-92ef71c92f75)
+ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠ㅤ󠀠󠀠[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31x7nxf2ao2ae5e4d62yclnezpn4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-  ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀  ⠀ ⠀  ⠀⠀ ⠀
-  ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀  ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀  ⠀  ⠀ *the frog and me*
+ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠<a href=https://pannys.atabook.org/>atabook</a> ⠀  <a href=https://pan4asim.straw.page>straw</a>⠀  <a href=https://revospring.net/@frukforever//>revospring</a> ⠀ <a href=https://en.pronouns.page/@ninipan//>prns.</a>
 
-  ⠀⠀ ⠀⠀⠀ ⠀  ⠀⠀  ⠀⠀ ⠀⠀  ⠀⠀  ⠀⠀ ⠀⠀  ⠀⠀ 
-  ⠀ ![tumblr_5711aa33a92740e5cab6b3884cf22b88_c38a6a08_400](https://github.com/user-attachments/assets/f3083254-48c1-4a17-b7d9-af3d8b6642c9)
+![tumblr_b29ce68ff06fc4076c343b5d90856937_1ad35b62_400](https://github.com/user-attachments/assets/e46f8b63-e42d-4a1b-b97f-f50dea24ff6b)![tumblr_b29ce68ff06fc4076c343b5d90856937_1ad35b62_400](https://github.com/user-attachments/assets/e46f8b63-e42d-4a1b-b97f-f50dea24ff6b)
+
+ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠![check_divider_emo_heart_by_kouenli_db9ajsx-fullview](https://github.com/user-attachments/assets/e7f34852-c58d-4bc0-a2d7-ab1468d0c6d2)
+
+ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠![Captura (1)-fotor-bg-remover-2025042116187](https://github.com/user-attachments/assets/b6542a8d-d025-43a7-b7b6-ea13d6e7d449)
 
 
- ⠀⠀ ⠀⠀⠀  ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀  ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀⠀![tumblr_916717822d62e989a7a703909650ef28_1b6af7bd_400](https://github.com/user-attachments/assets/8bf27540-4e86-4298-a1f5-c2ad74bed0c8)⠀ ⠀⠀  ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀
- 
-  ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀  ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀  ⠀ ⠀  ![tumblr_b58c533bc226333756459816ef245239_8787b6f0_400](https://github.com/user-attachments/assets/d22e706d-bd27-4741-96c8-ccedc715040a)
-  
-  ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀⠀ ⠀![tumblr_5711aa33a92740e5cab6b3884cf22b88_c38a6a08_400](https://github.com/user-attachments/assets/f3083254-48c1-4a17-b7d9-af3d8b6642c9)
+ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠ㅤ󠀠󠀠![check_divider_emo_heart_by_kouenli_db9ajsx-fullview](https://github.com/user-attachments/assets/e7f34852-c58d-4bc0-a2d7-ab1468d0c6d2)
 
- ⠀⠀ ⠀⠀⠀  ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀  ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀⠀![tumblr_916717822d62e989a7a703909650ef28_1b6af7bd_400](https://github.com/user-attachments/assets/8bf27540-4e86-4298-a1f5-c2ad74bed0c8)⠀ ⠀⠀  
-⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   <a href=https://pannys.atabook.org/>atabook</a> ⠀  <a href=https://pan4asim.straw.page>straw</a>⠀  <a href=https://revospring.net/@frukforever//>revospring</a> ⠀ <a href=https://en.pronouns.page/@ninipan//>prns.</a>
+![tumblr_24ce00b61e8ce2f5563a221b761033ab_831bdf97_400](https://github.com/user-attachments/assets/58ce129e-d2c5-4e26-8686-77dcd740de89)![tumblr_24ce00b61e8ce2f5563a221b761033ab_831bdf97_400](https://github.com/user-attachments/assets/58ce129e-d2c5-4e26-8686-77dcd740de89)
+
+
+
+
